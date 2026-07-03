@@ -1,4 +1,4 @@
-# Click to see full paragraph
+# About me!:
 Hello! I’m Atticus! I go by she/they and I use my GitHub for Ponytown. 
 I enjoy simple things such as fishing, reading, socializing, and going outside.
 I am a huge fan of JoJo's Bizarre Adventure and Doki Doki Literature Club. Do not call me a "larper" if I forget a detail within these medias, as I am forgetful and may not remember! 
