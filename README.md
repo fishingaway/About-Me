@@ -1,6 +1,8 @@
 # About me!:
-Hello! I’m Atticus! I go by she/they and I use my GitHub for Ponytown. 
-I enjoy simple things such as fishing, reading, socializing, and going outside.
-I am a huge fan of JoJo's Bizarre Adventure and Doki Doki Literature Club. Do not call me a "larper" if I forget a detail within these medias, as I am forgetful and may not remember! 
-I am 100% friendly unless my name or Github status says otherwise! Please do not take friendliness as an okay to be rude or discriminatory, even if it's a joke. I find it hard to understand whether or not something is a joke unless it's obvious! No this does not mean I require tone tags. I would just prefer you make your jokes obvious so that I may get the gist.
-I am not afraid to temporarily hide you, block you, or report you to Ponytown moderation. Though I won't usually do it, if you end up weirding me out or making me uncomfortable!!
+☆ ︶︶︶  ౿ ָ 🎀 𞥊   ︶︶︶ ☆
+
+Ꮺ  ᥴᥲᥣᥣ by ρrᥱfᥱrrᥱd ᥒᥲ꧑ᥱ᥉   ๋࣭ ⭑ ᥉hᥱ/thᥱy
+જ⁀➴  J᥆j᥆ ᥉ᥙρᥱrfᥲᥒ  ೀ  06.25  ೀ  Ι᥉fρ
+Qᥙᥱ᥉tι᥆ᥒιᥒg ᥉y᥉tᥱ꧑ .ᐟ ₊˚⊹ ᰔ
+
+︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
